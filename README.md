@@ -1,0 +1,1 @@
+https://colab.research.google.com/gist/HuKuToC97/ff2011fbff1de2cd02dc01a7db6ced9f/homework.ipynb?hl=ru)https://colab.research.google.com/gist/HuKuToC97/ff2011fbff1de2cd02dc01a7db6ced9f/homework.ipynb?hl=ru
